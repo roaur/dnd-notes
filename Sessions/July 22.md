@@ -14,7 +14,7 @@
 - We go down to investigate
 
 ---
-### Combat w/ Young Black Dragon in Lake
+### Combat w/ Young Black Dragon (Axaria's Shade/Form) in Lake
 - Pops into and out of water, problematic
 - Arilla down round 1
 - Bradathon nearly down round 1
