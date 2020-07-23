@@ -1,5 +1,5 @@
 ## July 22, 2020
-### Session 13
+### Session 12
 
 - Bilgim concerned about draconic speaking warforged
   - Keeps repeating not good, not good
