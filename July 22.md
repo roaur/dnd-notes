@@ -37,6 +37,7 @@
 - Potion of Octopus Form 
   - Drinking transforms into octopus for 1h and can dispel using an action
 - 1300 GP from Bilgim as reward too
+- Des finds his family signet ring
   
 
 # End of Forge of Fury, Chapter One!
